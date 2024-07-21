@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @HavocAndX6opa
+- 👀 I’m interested in coding in C++, C, C#, Python
+- 🌱 I’m currently learning C#
+- 💞️ I’m looking to collaborate on Nothing rn
+- 📫 How to reach me Discord - Dray5513
+- 😄 Pronouns: I dont have
+- ⚡ Fun fact: I am 9 years old.
