@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HavocAndX6opa
-- 👀 I’m interested in coding in C++, C, C#, Python
+- 👀 I’m interested coding in C++, C, C#, Python
 - 🌱 I’m currently learning C#
 - 💞️ I’m looking to collaborate on Nothing rn
 - 📫 How to reach me Discord - Dray5513
