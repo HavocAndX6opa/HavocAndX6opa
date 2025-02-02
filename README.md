@@ -3,5 +3,4 @@
 - 🌱 I’m currently learning C#
 - 💞️ I’m looking to collaborate on Nothing rn
 - 📫 How to reach me Discord - Dray5513
-- 😄 Pronouns: I dont have
-- ⚡ Fun fact: I have Tiktok named Baton
+- 😄 Pronouns: He Him
